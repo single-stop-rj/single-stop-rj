@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning everything 🤣 - Netowrking and Information Security
 - 👯 I’m looking to collaborate with other content creators
 - Did I mention that I play a lot of video games
-- 🥅 2020 Goals: Contribute more to Open Source projects
+- 🥅 2021 Goals: Contribute more to Open Source projects
 - ⚡ Fun fact: I love working in Fire and EMS when im not writting code all day
 
 ### Connect with me:
